@@ -1,1 +1,0 @@
-# harita1302.github.io
